@@ -1,3 +1,2 @@
-![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/6f2a20596044a6f42964f34f653df7e4b7c57217/Untitled36_20260910102330.png)
-ㅤㅤMelody/Melodie ㅤㅤꢡ𐑼 ’ adult 
+![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/6e24fd0ee5471ee5d245d2b3524c2e434ec73ced/Untitled40_20260911172326.png) 
 ㅤㅤㅤㅤㅤㅤ

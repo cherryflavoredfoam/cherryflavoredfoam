@@ -1,2 +1,2 @@
-![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/486d50eff36b7212c87d6f615a85e086df3ede2f/Untitled51_20260924211318.png)
+![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/e3445daa73738cd580aa1e429d0210cc9733a43a/Untitled51_20260924212407.png)
 ㅤㅤㅤㅤㅤㅤ ᨳ𐔌՞҂ ˕ ֊՞𐦯ᜊ

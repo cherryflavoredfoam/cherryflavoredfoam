@@ -1,5 +1,5 @@
-
-ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/21caa660c02cebf1247056079c7a7455dc2c5cda/Untitled54_20260926130853.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ───୨ৎ────
+ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/891e45cdc72692ada2ae0ba1dccf4dfa4701aa31/Untitled54_20260926133326.png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⑅rewards⑅
 

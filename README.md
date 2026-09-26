@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ───୨ৎ────
+ㅤㅤㅤㅤㅤㅤ───୨ৎ────
 ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/891e45cdc72692ada2ae0ba1dccf4dfa4701aa31/Untitled54_20260926133326.png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⑅rewards⑅

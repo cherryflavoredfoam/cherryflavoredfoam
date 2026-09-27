@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤㅤ───୨ৎ────
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=10&letterSpacing=30%25&pause=2000&color=F6D6B9&center=true&vCenter=true&width=435&lines=sign+my+ata+for+cupcakes" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=40&letterSpacing=30%25&pause=1000&color=F6D6B9&center=true&vCenter=true&width=435&lines=sign+my+ata+for+cupcakes" alt="Typing SVG" /></a>
 ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/cherryflavoredfoam/cherryflavoredfoam/blob/891e45cdc72692ada2ae0ba1dccf4dfa4701aa31/Untitled54_20260926133326.png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ˃ᆺ˂
